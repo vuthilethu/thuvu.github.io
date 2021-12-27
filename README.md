@@ -3,11 +3,11 @@
 
 **Email:** thuvu0710@gmail.com
 
+**LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)
+
 **Phone:** 0933 031 351
 
 **Address:** Ho Chi Minh City, Vietnam
-
-**LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)
 
 <br>
 
