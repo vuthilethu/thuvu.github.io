@@ -27,7 +27,6 @@ channels.
 <br><br>
 
 **Editor** @ [T-Production Company](https://www.youtube.com/c/TProductionChannel/community) (*Jun 2017 – Jun 2020*)
-
 - Writing scripts production for the following programs:
   - Gala Nhac Viet
   - Cau Chuyen Am Nhac
@@ -42,6 +41,7 @@ Writing script production for “Thay Loi Muon Noi” program
 <br><br>
 
 **Editor** @ [Muc Tim Newspaper](http://muctim.com.vn/) (*Sep 2015 - Jun 2016*)
+
 Main Article subject: 
 - Youth and school activities
 - Contemporary social issues
