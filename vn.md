@@ -1,5 +1,5 @@
 # Vũ Thị Lệ Thu
-*Digital content marketing and Editor with more than 5 years experienced working with various projects*<br><br>
+*Hơn 5 năm kinh nghiệm trong lĩnh vực Digital content marketing và Biên tập với nhiều dự án đa dạng*<br><br>
 
 **Email:** thuvu0710@gmail.com
 
@@ -7,55 +7,51 @@
 
 **GitHub:** [github.com/vuthilethu](https://github.com/vuthilethu/vuthilethu.github.io)
 
-**Phone:** 0933 031 351
+**Điện thoại:** 0933 031 351
 
-**Address:** Ho Chi Minh City, Vietnam
+**Địa chỉ:** Thành phố Hồ Chí Minh, Việt Nam
 
 <br>
 
-## ✒️Experience
+## ✒️ Kinh nghiệm
 
-**Content-Marketing** @ [Viet Princess Cruise JSC](https://www.saigonprincess.com.vn/) (*Jun 2020 - Present*)
-- Create/Manage content for Fanpage, Instagram, Linkedin,
-Website.
-- Responsible for producing media content such as articles, ideas
-videos/photos.
-- Contribute creative content ideas for Digital Marketing
-campaigns.
-- Editing media content on the Company's communication
-channels.
+**Content-Marketing** @ [Viet Princess Cruise JSC](https://www.saigonprincess.com.vn/) (*06/2020 - Tới nay*)
+- Sáng tạo/quản lý nội dung cho Fanpage, Instagram, Linkedin, Website.
+- Chịu trách nhiệm xuất bản nội dung truyền thông như các bài viết, ý tưởng cho phim ngắn/hình ảnh.
+- Đóng góp ý tưởng sáng tạo nội dung cho các chiến dịch quảng cáo kỹ thuật số (Digital Marketing).
+- Chỉnh sửa nội dung truyền thông trên các phương tiện đại chúng của công ty như website, Fanpage.
 <br><br>
 
-**Editor** @ [T-Production Company](https://www.youtube.com/c/TProductionChannel/community) (*Jun 2017 – Jun 2020*)
-- Writing scripts production for the following programs:
-  - Gala Nhac Viet
-  - Cau Chuyen Am Nhac
-  - Viet Nam Tuoi Dep
-- Take part in writing advertisements for Facebook and related forums.
-- Meeting with customers and collect requirements.
+**Editor** @ [T-Production Company](https://www.youtube.com/c/TProductionChannel/community) (*06/2017 – 06/2020*)
+- Viết kịch bản sản xuất cho các chương trình:
+  - Gala Nhạc Việt
+  - Câu Chuyện Âm Nhạc
+  - Việt Nam Tươi Đẹp
+- Tham gia viết bài quảng cáo cho Facebook và các diễn đàn liên quan.
+- Gặp gỡ khách hàng và ghi nhận yêu cầu hợp đồng.
 <br><br>
 
-**Editor** @ [Ho Chi Minh City Television (HTV)](http://www.htv.com.vn/) (*July 2016 – Apr 2017*)
+**Editor** @ [Đài Truyền hình Thành phố Hồ Chí Minh (HTV)](http://www.htv.com.vn/) (*07/2016 – 04/2017*)
 
-Writing script production for “Thay Loi Muon Noi” program
+Viết kịch bản cho chương trình Thay Lời Muốn Nói
 <br><br>
 
-**Editor** @ [Muc Tim Newspaper](http://muctim.com.vn/) (*Sep 2015 - Jun 2016*)
+**Editor** @ [Muc Tim Newspaper](http://muctim.com.vn/) (*09/2015 - 06/2016*)
 
-Main Article subject: 
-- Youth and school activities
-- Contemporary social issues
+Viết bài theo các chủ đề về: 
+- Hoạt động thanh thiếu niên và trường học
+- Các vấn đề xã hội đương đại
 <br>
 
-## 🎓 Education
-**English Studies**
+## 🎓 Học vấn
+**Ngôn Ngữ Anh**
 
-[Hutech University](https://www.hutech.edu.vn/) - Ho Chi Minh City, Viet Nam (2013 - 2018)
+[Đại học Hutech](https://www.hutech.edu.vn/) - Thành phố Hồ Chí Minh, Việt Nam (2013 - 2018)
 
-## 📜 Certificates
+## 📜 Chứng chỉ
 **IELTS 6.5** @ [Mc IELTS](https://mcielts.com/) (*2015*)
 
-## 💬 Languages
-**English**: Professional fluently
+## 💬 Ngôn ngữ
+**Tiếng Anh**: Lưu loát và chuyên nghiệp
 
-**Vietnamese**: Native
+**Tiếng Việt**: Bản địa
