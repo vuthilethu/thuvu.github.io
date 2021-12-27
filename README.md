@@ -15,7 +15,7 @@
 
 ## ✒️Experience
 
-**Content-Marketing** @ [Viet Princess Cruise JSC](https://www.youtube.com/c/TProductionChannel/community) (*Jun 2020 - Present*)
+**Content-Marketing** @ [Viet Princess Cruise JSC](https://www.saigonprincess.com.vn/) (*Jun 2020 - Present*)
 - Create/Manage content for Fanpage, Instagram, Linkedin,
 Website.
 - Responsible for producing media content such as articles, ideas
