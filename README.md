@@ -27,6 +27,7 @@ channels.
 <br><br>
 
 **Editor** @ [T-Production Company](https://www.youtube.com/c/TProductionChannel/community) (*Jun 2017 – Jun 2020*)
+
 - Writing scripts production for the following programs:
   - Gala Nhac Viet
   - Cau Chuyen Am Nhac
@@ -36,6 +37,7 @@ channels.
 <br><br>
 
 **Editor** @ [Ho Chi Minh City Television (HTV)](http://www.htv.com.vn/) (*July 2016 – Apr 2017*)
+
 Writing script production for “Thay Loi Muon Noi” program
 <br><br>
 
