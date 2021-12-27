@@ -5,7 +5,7 @@
 
 **LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)
 
-**GitHub:** [github.com/vuthilethu](https://github.com/vuthilethu/vuthilethu.github.io)
+**GitHub:** [github.com/vuthilethu](https://vuthilethu.github.io)
 
 **Phone:** 0933 031 351
 
