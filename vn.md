@@ -1,13 +1,13 @@
 # Vũ Thị Lệ Thu
 *Hơn 5 năm kinh nghiệm trong lĩnh vực Digital content marketing và Biên tập với nhiều dự án đa dạng*<br><br>
 
-**Email:** thuvu0710@gmail.com
+**Email:** [thuvu0710@gmail.com](mailto:thuvu0710@gmail.com)
 
 **LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)
 
-**GitHub:** [github.com/vuthilethu](https://vuthilethu.github.io/vn)
+**GitHub:** [github.com/vuthilethu](https://vuthilethu.github.io)
 
-**Điện thoại:** 0933 031 351
+**Điện thoại:** [0933 031 351](tel:+84933031351)
 
 **Địa chỉ:** Thành phố Hồ Chí Minh, Việt Nam
 
