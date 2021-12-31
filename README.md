@@ -1,13 +1,13 @@
 # Vu Thi Le Thu
 *Digital content marketing and Editor with more than 5 years experienced working with various projects*<br><br>
 
-**Email:** thuvu0710@gmail.com
+**Email:** [thuvu0710@gmail.com](mailto:thuvu0710@gmail.com)
 
 **LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)
 
 **GitHub:** [github.com/vuthilethu](https://vuthilethu.github.io)
 
-**Phone:** 0933 031 351
+**Phone:** [0933 031 351](tel:+84933031351)
 
 **Address:** Ho Chi Minh City, Vietnam
 
