@@ -5,7 +5,7 @@
 
 **LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)
 
-**GitHub:** [github.com/vuthilethu](https://vuthilethu.github.io)
+**GitHub:** [github.com/vuthilethu](https://vuthilethu.github.io/vn)
 
 **Điện thoại:** [0933 031 351](tel:+84933031351)
 
