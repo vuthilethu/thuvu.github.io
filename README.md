@@ -1,25 +1,38 @@
 # Vu Thi Le Thu
-*Digital content marketing and Editor with more than 5 years experienced working with various projects*<br><br>
+*Digital content marketing and Editor with more than 6 years experienced working with various projects*<br>
 
-**Email:** [thuvu0710@gmail.com](mailto:thuvu0710@gmail.com)
+<div style="float: left; height: 300px; overflow: hidden; margin-right: 2em;">
+<img style="transform: scale(1.5);" src="https://lh3.googleusercontent.com/drive-viewer/AITFw-wdlHyzNEHsuHg1AdfcmhjE7-RtFrcJS4fY8HFnUApNSmmOE4QcFeVLohvdLUYOvlDScQK2ltwlJfg_764ZP1_w6zH1ww=s1600" height="300">
+</div>
 
-**LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)
+**Email:** [thuvu0710@gmail.com](mailto:thuvu0710@gmail.com)<br>
+**LinkedIn:** [linkedin.com/in/vuthilethu](https://www.linkedin.com/in/vuthilethu/)<br>
+**Phone:** [0933 031 351](tel:+84933031351)<br>
+**Address:** Ho Chi Minh City, Vietnam<br>
+<div style="clear: left;"></div><br>
 
-**GitHub:** [github.com/vuthilethu](https://vuthilethu.github.io)
+## 💡 Profile
 
-**Phone:** [0933 031 351](tel:+84933031351)
+I aspire to be a good editor who forth a wealth of unique, innovative, and compelling content to produce high-quality articles. My aspiration is to become an exceptional, creative, and visionary leader in the media industry, driving forward new ideas and setting new standards of excellence.
 
-**Address:** Ho Chi Minh City, Vietnam
+I look forward to introducing fresh and breakthrough ideas in the field of communication, while also discovering and exploiting potential opportunities to advance the media industry.
 
-<br>
-
-## ✒️Experience
+## 🖋️ Experience
 
 **Content-Marketing** @ [Viet Princess Cruise JSC](https://www.saigonprincess.com.vn/) (*Jun 2020 - Present*)
-- Create/Manage content for Fanpage, Instagram, Linkedin, Website.
-- Responsible for producing media content such as articles, ideas videos/photos.
+
+Responsibilities:
+- Create and manage content for Fanpage, Instagram, LinkedIn, website, YouTube, and TikTok.
+- Produce media content such as articles, videos, and image ideas.
+- Develop content and image ideas for magazine covers, advertisements, invitations, and other promotional materials.
+- Edit content and write PR articles for the Company's media channels.
 - Contribute creative content ideas for Digital Marketing campaigns.
-- Editing media content on the Company's communication channels.
+- Plan content creation for the week, month, and quarter by topic.
+- Run ads on social media channels: Facebook, Instagram, and LinkedIn.
+- Assist in planning corporate events and coordinating with client partner companies.
+- Collaborate with the KOLs team to create unique and impressive content.
+- Support the design team by taking photos and editing basic clips.
+- Assist the Sales Department in taking care of potential customers.
 <br><br>
 
 **Editor** @ [T-Production Company](https://www.youtube.com/c/TProductionChannel/community) (*Jun 2017 – Jun 2020*)
